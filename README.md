@@ -70,4 +70,4 @@ OpenAI 🤖 Google Bard 🎭 Midjourney
 
 ## 🌐 官网地址
 
-[https://jump.p6p.net/118](https://jump.p6p.net/118)
+[https://jump.p6p.net/118](https://tiao.bid/118)
